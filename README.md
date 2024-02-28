@@ -1,5 +1,5 @@
 # 💫 About Me:
-My Name is Wajgod I am website generator 
+My Name is Wajgod I am website developer 
 
 
 ## 🌐 Socials:
